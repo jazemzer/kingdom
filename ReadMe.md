@@ -1,0 +1,4 @@
+
+## Deployment
+
+mkdocs gh-deploy
