@@ -7,3 +7,5 @@
 
 `Joseph of Arimathaea, an honourable counseller, which also waited for the kingdom of God, came, and went in boldly unto Pilate, and craved the body of Jesus.` [Mk 15: 43](https://biblehub.com/mark/15-43.htm)
 
+`(The same had not consented to the counsel and deed of them;) he was of Arimathaea, a city of the Jews: who also himself waited for the kingdom of God.` [Lk 23: 51](https://biblehub.com/luke/23-51.htm)
+

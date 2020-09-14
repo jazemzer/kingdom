@@ -15,5 +15,5 @@ The simple answer is we are asked to do so - `But seek ye first the kingdom of G
 
 But a nice side benefit is that we have all our needs covered. As 'all things' in the above verse refers to the `worries of life and body`[Mt 6: 25](https://biblehub.com/matthew/6-25.htm). Specifically, `what to eat, what to drink, and what to wear` [Mt 6: 31](https://biblehub.com/matthew/6-31.htm).
 
-[Greek word](https://biblehub.com/greek/932.htm)
+[Greek word](https://biblehub.com/greek/strongs_932.htm)
 

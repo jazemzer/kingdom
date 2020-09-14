@@ -8,6 +8,4 @@
 
 `But I tell you of a truth, there be some standing here, which shall not taste of death, till they see the kingdom of God.` [Lk 9: 27](https://biblehub.com/luke/9-27.htm)
 
-## Sacrifice for the kingdom of God?
 
-`For there are some eunuchs, which were so born from their mother's womb: and there are some eunuchs, which were made eunuchs of men: and there be eunuchs, which have made themselves eunuchs for the kingdom of heaven's sake. He that is able to receive it, let him receive it.` [Mt 19: 12](https://biblehub.com/matthew/19-12.htm)
