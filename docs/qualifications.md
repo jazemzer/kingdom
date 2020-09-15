@@ -6,6 +6,10 @@
 `And I appoint unto you a kingdom, as my Father hath appointed unto me; That ye may eat and drink at my table in my kingdom, and sit on thrones judging the twelve tribes of Israel.` [Lk 22: 29](https://biblehub.com/luke/22-29.htm), [30](https://biblehub.com/luke/22-30.htm)
 
 `And the Lord shall deliver me from every evil work, and will preserve me unto his heavenly kingdom: to whom be glory for ever and ever. Amen.` [2 Tim 4: 18](https://biblehub.com/2_timothy/4-18.htm)
+
+## Pray for the kingdom to come
+Jesus taught to pray `Thy Kingdom come` [Mt 6: 10](https://biblehub.com/matthew/6-10.htm), [Lk 11:2](https://biblehub.com/luke/11-2.htm)
+
 ## Repent
 
 John in [Mt 3: 2](https://biblehub.com/matthew/3-2.htm) says 'And saying, Repent ye: for the kingdom of heaven is at hand.'

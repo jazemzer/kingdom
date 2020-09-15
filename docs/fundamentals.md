@@ -1,78 +1,88 @@
 
-# Kingdom of God
+# Fundamentals of Kingdom of God
 
-## Is "Kingdom of God" real or an abstract concept
+## Is "Kingdom of God" a physical or metaphysical concept? 
 
+It is both. As seen in the below passages, the bible speaks about both an invisible kingdom that is already here and a future kingdom which will be forever.
+
+### An invisible kingdom
 `And when he was demanded of the Pharisees, when the kingdom of God should come, he answered them and said, The kingdom of God cometh not with observation: Neither shall they say, Lo here! or, lo there! for, behold, the kingdom of God is within you.` [Lk 17: 20](https://biblehub.com/luke/17-20.htm), [21](https://biblehub.com/luke/17-21.htm)
 
-`Jesus answered, My kingdom is not of this world: if my kingdom were of this world, then would my servants fight, that I should not be delivered to the Jews: but now is my kingdom not from hence` [Jn 18: 36](https://biblehub.com/john/18-36.htm)
+This unseen kingdom is not like the earthly kingdoms - `Jesus answered, My kingdom is not of this world: if my kingdom were of this world, then would my servants fight, that I should not be delivered to the Jews: but now is my kingdom not from hence` [Jn 18: 36](https://biblehub.com/john/18-36.htm)
 
-The bible seem to refer to Kingdom of God to:
+### An everlasting kingdom in future
 
-* Something in the future
-    * Daniel prophesised that `the God of heaven will set up a kingdom which shall never be destroyed` [Dan 2: 44](https://biblehub.com/daniel/2-44.htm)
-    * `And he shall reign over the house of Jacob for ever; and of his kingdom there shall be no end. ` [Lk 1: 33](https://biblehub.com/luke/1-33.htm)
-    * Jesus wouldn't have asked us to pray `Thy Kingdom come` if it was not in the future? [Mt 6: 10](https://biblehub.com/matthew/6-10.htm), [Lk 11:2](https://biblehub.com/luke/11-2.htm)
-    * `But I say unto you, I will not drink henceforth of this fruit of the vine, until that day when I drink it new with you in my Father's kingdom.` [Mt 26: 29](https://biblehub.com/matthew/26-29.htm), [Mk 14: 25](https://biblehub.com/mark/14-25.htm), [Lk 22: 16](https://biblehub.com/luke/22-16.htm), [18](https://biblehub.com/luke/22-18.htm)
-    * `For thine is the kingdom, and the power, and the glory, for ever` - [Mt 6: 13](https://biblehub.com/matthew/6-13.htm)
-    * `He said therefore, A certain nobleman went into a far country to receive for himself a kingdom, and to return.` [Lk 19: 12](https://biblehub.com/luke/19-12.htm)
-    * `And it came to pass, that when he was returned, having received the kingdom, then he commanded these servants to be called unto him, to whom he had given the money, that he might know how much every man had gained by trading.` [Lk 19: 15](https://biblehub.com/luke/19-15.htm)
-    * `So likewise ye, when ye see these things come to pass, know ye that the kingdom of God is nigh at hand` [Lk 21: 31](https://biblehub.com/luke/21-31.htm)
-    * `And he said unto Jesus, Lord, remember me when thou comest into thy kingdom.` [Lk 23: 42](https://biblehub.com/luke/23-42.htm)
-    * `When they therefore were come together, they asked of him, saying, Lord, wilt thou at this time restore again the kingdom to Israel?` [Acts 1: 6](https://biblehub.com/acts/1-6.htm)
-    * `Then cometh the end, when he shall have delivered up the kingdom to God, even the Father; when he shall have put down all rule and all authority and power.` [1 Cor 15: 24](https://biblehub.com/1_corinthians/15-24.htm)
-* Something that is near
-    * `Repent ye: for the kingdom of heaven is at hand.` - [Mt 3: 2](https://biblehub.com/matthew/3-2.htm), [Mt 4: 17](https://biblehub.com/matthew/4-17.htm)
-    * `But if I cast out devils by the Spirit of God, then the kingdom of God is come unto you` - [Mt 12: 28](https://biblehub.com/matthew/12-28.htm)
-    * `But if I with the finger of God cast out devils, no doubt the kingdom of God is come upon you` [Lk 11: 20](https://biblehub.com/luke/11-20.htm)
-* Something that is already there for a while
-    * `Then shall the King say unto them on his right hand, Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world:` [Mt 25: 34](https://biblehub.com/matthew/25-34.htm)
-* Something within you
-    * `Neither shall they say, Lo here! or, lo there! for, behold, the kingdom of God is within you.` [Lk 17: 21](https://biblehub.com/luke/17-21.htm)
+Daniel prophesised that `the God of heaven will set up a kingdom which shall never be destroyed` [Dan 2: 44](https://biblehub.com/daniel/2-44.htm)
 
-## To whom this kingdom belong?
+Jesus Christ will reign from the throne of David - `He will be great and will be called the Son of the Most High. The Lord God will give Him the throne of His father David, And he shall reign over the house of Jacob for ever; and of his kingdom there shall be no end. ` [Lk 1: 32](https://biblehub.com/luke/1-32.htm) ,[33](https://biblehub.com/luke/1-33.htm)
+
+
+## When will this Kingdom of God be established?
+
+### Invisible part is already here
+
+* `Neither shall they say, Lo here! or, lo there! for, behold, the kingdom of God is within you.` [Lk 17: 21](https://biblehub.com/luke/17-21.htm)
+* `Repent ye: for the kingdom of heaven is at hand.` - [Mt 3: 2](https://biblehub.com/matthew/3-2.htm), [Mt 4: 17](https://biblehub.com/matthew/4-17.htm)
+* `But if I cast out devils by the Spirit of God, then the kingdom of God is come unto you` - [Mt 12: 28](https://biblehub.com/matthew/12-28.htm)
+* `But if I with the finger of God cast out devils, no doubt the kingdom of God is come upon you` [Lk 11: 20](https://biblehub.com/luke/11-20.htm) 
+
+### Physical part will appear in future
+* Jesus said - `But I say unto you, I will not drink henceforth of this fruit of the vine, until that day when I drink it new with you in my Father's kingdom.` [Mt 26: 29](https://biblehub.com/matthew/26-29.htm), [Mk 14: 25](https://biblehub.com/mark/14-25.htm), [Lk 22: 16](https://biblehub.com/luke/22-16.htm), [18](https://biblehub.com/luke/22-18.htm)
+* `And as they heard these things, he added and spake a parable, because he was nigh to Jerusalem, and because they thought that the kingdom of God should immediately appear. He said therefore, A certain nobleman went into a far country to receive for himself a kingdom, and to return.` [Lk 19: 11](https://biblehub.com/luke/19-11.htm) ,[12](https://biblehub.com/luke/19-12.htm)
+* `And it came to pass, that when he was returned, having received the kingdom, then he commanded these servants to be called unto him, to whom he had given the money, that he might know how much every man had gained by trading.` [Lk 19: 15](https://biblehub.com/luke/19-15.htm)
+* `So likewise ye, when ye see these things come to pass, know ye that the kingdom of God is nigh at hand` [Lk 21: 31](https://biblehub.com/luke/21-31.htm)
+* `And he said unto Jesus, Lord, remember me when thou comest into thy kingdom.` [Lk 23: 42](https://biblehub.com/luke/23-42.htm)
+* `When they therefore were come together, they asked of him, saying, Lord, wilt thou at this time restore again the kingdom to Israel? And he said unto them, It is not for you to know the times or the seasons, which the Father hath put in his own power.` [Acts 1: 6](https://biblehub.com/acts/1-6.htm), [7](https://biblehub.com/acts/1-7.htm)
+* `Then cometh the end, when he shall have delivered up the kingdom to God, even the Father; when he shall have put down all rule and all authority and power.` [1 Cor 15: 24](https://biblehub.com/1_corinthians/15-24.htm)
+* `Then shall the King say unto them on his right hand, Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world:` [Mt 25: 34](https://biblehub.com/matthew/25-34.htm)
+
+## To whom does this kingdom belong?
+
+### It is God's kingdom
+`For thine is the kingdom, and the power, and the glory, for ever` - [Mt 6: 13](https://biblehub.com/matthew/6-13.htm)  
 
 `That ye would walk worthy of God, who hath called you unto his kingdom and glory.` [1 Thes 2: 12](https://biblehub.com/1_thessalonians/2-12.htm)
 
+`And I heard a loud voice saying in heaven, Now is come salvation, and strength, and the kingdom of our God, and the power of his Christ: for the accuser of our brethren is cast down, which accused them before our God day and night` [Rev 12: 10](https://biblehub.com/revelation/12-10.htm)
+
+### It is also the Son's kingdom
 `Who hath delivered us from the power of darkness, and hath translated us into the kingdom of his dear Son:` [Col 1: 13](https://biblehub.com/colossians/1-13.htm)
 
 `But unto the Son he saith, Thy throne, O God, is for ever and ever: a sceptre of righteousness is the sceptre of thy kingdom.` [Heb 1: 8](https://biblehub.com/hebrews/1-8.htm)
-
-`Wherefore we receiving a kingdom which cannot be moved, let us have grace, whereby we may serve God acceptably with reverence and godly fear:` [Heb 12: 28](https://biblehub.com/hebrews/12-28.htm)
-
-`For so an entrance shall be ministered unto you abundantly into the everlasting kingdom of our Lord and Saviour Jesus Christ.` [2 Pet 1: 11](https://biblehub.com/2_peter/1-11.htm)
 
 `I John, who also am your brother, and companion in tribulation, and in the kingdom and patience of Jesus Christ, was in the isle that is called Patmos, for the word of God, and for the testimony of Jesus Christ.` [Rev 1: 9](https://biblehub.com/revelation/1-9.htm)
 
 `And the seventh angel sounded; and there were great voices in heaven, saying, The kingdoms of this world are become the kingdoms of our Lord, and of his Christ; and he shall reign for ever and ever.` [Rev 11: 15](https://biblehub.com/revelation/11-15.htm)
 
-`And I heard a loud voice saying in heaven, Now is come salvation, and strength, and the kingdom of our God, and the power of his Christ: for the accuser of our brethren is cast down, which accused them before our God day and night` [Rev 12: 10](https://biblehub.com/revelation/12-10.htm)
+### It is also ours
 
-### To us
+`Wherefore we receiving a kingdom which cannot be moved, let us have grace, whereby we may serve God acceptably with reverence and godly fear:` [Heb 12: 28](https://biblehub.com/hebrews/12-28.htm)
+
+`For so an entrance shall be ministered unto you abundantly into the everlasting kingdom of our Lord and Saviour Jesus Christ.` [2 Pet 1: 11](https://biblehub.com/2_peter/1-11.htm)
 
 `And hath made us kings and priests unto God and his Father; to him be glory and dominion for ever and ever. Amen.` [Rev 1: 6](https://biblehub.com/revelation/1-6.htm)
 
 `And hast made us unto our God kings and priests: and we shall reign on the earth.` [Rev 5: 10](https://biblehub.com/revelation/5-10.htm)
 
+## What are the other kingdoms?
 
-## Are there other kingdoms?
 
-Yes.
-
-* Kingdoms of the world 
-    * `Devil ... sheweth him all the kingdoms of the world, and the glory of them` [Mt 4: 8](https://biblehub.com/matthew/4-8.htm)
-    * `And the devil, taking him up into an high mountain, shewed unto him all the kingdoms of the world in a moment of time.` [Lk 4: 5](https://biblehub.com/luke/4-5.htm)
-    * `Nation will rise against nation, and kingdom against kingdom.` [Mt 24: 7](https://biblehub.com/matthew/24-7.htm), [Mk 13: 8](https://biblehub.com/mark/13-8.htm), [Lk 21: 10](https://biblehub.com/luke/21-10.htm)
+### Kingdoms of the world 
+* `Devil ... sheweth him all the kingdoms of the world, and the glory of them` [Mt 4: 8](https://biblehub.com/matthew/4-8.htm)
+* `And the devil, taking him up into an high mountain, shewed unto him all the kingdoms of the world in a moment of time.` [Lk 4: 5](https://biblehub.com/luke/4-5.htm)
+* `Nation will rise against nation, and kingdom against kingdom.` [Mt 24: 7](https://biblehub.com/matthew/24-7.htm), [Mk 13: 8](https://biblehub.com/mark/13-8.htm), [Lk 21: 10](https://biblehub.com/luke/21-10.htm)
+* Kingdom of Herod
     * `And he(Herod) sware unto her, Whatsoever thou shalt ask of me, I will give it thee, unto the half of my kingdom` [Mk 6: 23](https://biblehub.com/mark/6-23.htm)
-    * Kingdom of David 
-        * `Blessed be the kingdom of our father David, that cometh in the name of the Lord: Hosanna in the highest.` [Mk 11: 10](https://biblehub.com/mark/11-10.htm)
-    * `Who through faith subdued kingdoms, wrought righteousness, obtained promises, stopped the mouths of lions,` - [Heb 11: 33](https://biblehub.com/hebrews/11-33.htm)
-    * `And the ten horns which thou sawest are ten kings, which have received no kingdom as yet; but receive power as kings one hour with the beast.` [Rev 17: 12](https://biblehub.com/revelation/17-12.htm)
-    * `And the woman which thou sawest is that great city, which reigneth over the kings of the earth.` [Rev 17: 18](https://biblehub.com/revelation/17-18.htm)
-* Kingdom of satan
-    * `And if Satan cast out Satan, he is divided against himself; how shall then his kingdom stand?` - [Mt 12: 26](https://biblehub.com/matthew/12-26.htm)
-    * `And the fifth angel poured out his vial upon the seat of the beast; and his kingdom was full of darkness; and they gnawed their tongues for pain,` - [Rev 16: 10](https://biblehub.com/revelation/16-10.htm)
-    * `For God hath put in their hearts to fulfil his will, and to agree, and give their kingdom unto the beast, until the words of God shall be fulfilled.` [Rev 17: 17](https://biblehub.com/revelation/17-17.htm)
+* Kingdom of David 
+    * `Blessed be the kingdom of our father David, that cometh in the name of the Lord: Hosanna in the highest.` [Mk 11: 10](https://biblehub.com/mark/11-10.htm)
+* `Who through faith subdued kingdoms, wrought righteousness, obtained promises, stopped the mouths of lions,` - [Heb 11: 33](https://biblehub.com/hebrews/11-33.htm)
+* `And the ten horns which thou sawest are ten kings, which have received no kingdom as yet; but receive power as kings one hour with the beast.` [Rev 17: 12](https://biblehub.com/revelation/17-12.htm)
+* `And the woman which thou sawest is that great city, which reigneth over the kings of the earth.` [Rev 17: 18](https://biblehub.com/revelation/17-18.htm)
+
+### Kingdom of satan
+* `And if Satan cast out Satan, he is divided against himself; how shall then his kingdom stand?` - [Mt 12: 26](https://biblehub.com/matthew/12-26.htm)
+* `And the fifth angel poured out his vial upon the seat of the beast; and his kingdom was full of darkness; and they gnawed their tongues for pain,` - [Rev 16: 10](https://biblehub.com/revelation/16-10.htm)
+* `For God hath put in their hearts to fulfil his will, and to agree, and give their kingdom unto the beast, until the words of God shall be fulfilled.` [Rev 17: 17](https://biblehub.com/revelation/17-17.htm)
 
 ## What are the properties of "Kingdom of God"
 

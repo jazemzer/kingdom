@@ -9,11 +9,13 @@ markdown_extensions:
 google_analytics: ['UA-163807440-3', 'jazemzer.github.io/kingdom']
 
 nav:
-  - 'Primary': 'primary.md'
+  - 'Fundamentals': 'fundamentals.md'
+  - 'Properties': 'properties.md'
   - 'Secondary': 'secondary.md'
   - 'Keys': 'keys.md'
   - 'Parables': 'parables.md'
   - 'Qualifications': 'qualifications.md'
   - 'Checklist': 'checklist.md'
   - 'How to seek': 'seeking.md'
+  - 'Gospel of the Kingdom' : 'gospel.md'
   - 'Tertiary': 'tertiary.md'
